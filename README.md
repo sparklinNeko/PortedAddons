@@ -1,3 +1,3 @@
-That addons are private.. PLEASE DON'T USE
-==========================================
+Welcome to Rexy's place..
+Have fun while using this addons..
 
